@@ -6,4 +6,8 @@
 
 ### 🧑‍💻 About Me
 
-一个前OI现在转MO并且马上寄的屑高中生
+一个前OI现在转MO并且马上寄的屑高中音游吃
+
+同时也喜欢Undertale/Deltarune/Minecraft等游戏, 爱好听歌()
+
+偶尔碰一下编程玩一玩()
